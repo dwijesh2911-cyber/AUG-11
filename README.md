@@ -1,2 +1,5 @@
-# AUG-11
-<img width="671" height="427" alt="image" src="https://github.com/user-attachments/assets/aef25893-ce50-48d8-b58e-84240f619496" />
+
+<img width="1917" height="455" alt="Screenshot 2026-08-11 105328" src="https://github.com/user-attachments/assets/6b6d2e76-cf26-4bb5-85da-9fb15f81efb6" />
+<img width="1917" height="1042" alt="Screenshot 2026-08-11 104239" src="https://github.com/user-attachments/assets/142ed084-3b0b-405e-9e83-063d48199254" />
+
+
